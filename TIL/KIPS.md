@@ -246,8 +246,6 @@ why?
 시키는 일만 하지말고 indendent한 연구자가 되어라! 
     - 생각하고 이해하고 넘어가라
 
-Case studies
-
 
 
 
